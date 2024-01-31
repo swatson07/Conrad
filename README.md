@@ -1,1 +1,1 @@
-# Conrad is universally known as the goat of goats
+# Conrad is multiversally known as the goat of goats
